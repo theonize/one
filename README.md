@@ -11,5 +11,6 @@ The goal is to know God and make Him known through Biblically guided prayers and
 * Past Present Future
 * Posture
 * Breathing
-* Public Private
+* Public Private Partner
+* Worship
 * 
